@@ -14,5 +14,4 @@ meu nome é Erick Bryan Carvalho Da Silva
 - pode hackear nao uso
 - @show_do_erick456
 
-![]()
-https://gifdb.com/images/high/goku-thumbs-up-5r8q4qe80h4649ot.gif
+!.[.].https://gifdb.com/images/high/goku-thumbs-up-5r8q4qe80h4649ot.gif
